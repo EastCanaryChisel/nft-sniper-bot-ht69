@@ -1,4 +1,4 @@
-# 
+# ultimate nft sniper bot | bulk-purchases + collection-scanning offers the most advanced nft sniper bot, with bulk-purchases and collection-scanning. Ideal for professional NFT
 
 
 
